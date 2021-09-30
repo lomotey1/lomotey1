@@ -2,4 +2,4 @@
 - 👀 I’m interested in computers and music!
 - 🌱 I’m currently learning web design
 - 💞️ I’m looking to collaborate on anything! My Soundcloud is https://soundcloud.com/lomo_music if you want to check my stuff out, and feel free to message me!
-- 📫 How to reach me: Twitter (@aLOMOmola_), email
+- 📫 How to reach me: Twitter (@aLOMOmola_)
